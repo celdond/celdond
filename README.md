@@ -1,5 +1,5 @@
 Cody E. Doyle 
-Current Student at University of California Santa Cruz  
+
 Email: celdond@gmail.com  
 LinkedIn: https://www.linkedin.com/in/cody-doyle-b31638213/
 <!---
